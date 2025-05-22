@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything :3
 - 📫 Reach me @ isaiasnoel@gmail.com
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: Former Smash Ultimate pro player !
+- ⚡ Fun fact: Former Super Smash Bros. Ultimate pro player !
 
 <!---
 mindisaias/mindisaias is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
